@@ -1,4 +1,4 @@
-Hi, I’m @XP38000 or @🅵🅻🅾
+Hi, I’m @XP38000 or
 I’m interested in becoming a real software engineer, step by step. This is my current collection of what i was practicing on
 
 <!---
